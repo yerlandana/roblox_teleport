@@ -1,2 +1,1 @@
-https://docs.google.com/document/d/1RkmaYnwU7a9MaxNyxSHVbDF13OMq-jNIudp4DRptoPY/edit?usp=sharinghttps://meet.jit.si/HealthyChunksStriveIndifferently
-
+https://stepik.org/lesson/296416/step/1?after_pass_reset=true&unit=278136
